@@ -1,1 +1,2 @@
-Selamat datang-selamat bersinggah di gerbong memori milik snag bulan!
+Selamat datang-selamat bersinggah di gerbong memori milik sang bulan!
+
